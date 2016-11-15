@@ -2,7 +2,7 @@
 
 English | Chinese Org. | Chinese New
 ------------- | ------------- | -------- |
-asdf | DFDF | DFF
+[asdf](Six Year Plan) | [DFDF](Universal) | DFF
 
 
 In 1953 Shoghi Effendi, the Guardian of the Bahá’í Faith, included as one of the goals of his Ten Year Plan the preparation of a Synopsis and Codification of the Laws and Ordinances of the Kitáb-i-Aqdas as an essential prelude to its translation. He himself worked on the codification, but had not finished it when he died in 1957. The task was continued on the basis of his work, and the resulting volume was released in 1973. That publication included, in addition to the Synopsis and Codification itself and explanatory notes, a compilation of the passages from the Kitáb-i-Aqdas which had already been translated by Shoghi Effendi and published in various books. The Synopsis and Codification covered the text of both the Kitáb-i-Aqdas and the Questions and Answers which constitutes an appendix to the Aqdas. In 1986 the Universal House of Justice decided that the time had come when the preparation of an English translation of the complete text of the Most Holy Book was both possible and essential and made its accomplishment a goal of the <a name="Six Year Plan">Six Year Plan</a> 1986-1992. Its publication in English will be followed by translations in other languages.
